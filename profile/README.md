@@ -1,1 +1,1 @@
-![uMIS Labs](https://new.umis.juanvel400.xyz/img/wordmark-labs.png)
+![uMIS Labs](https://umis.juanvel400.com/img/wordmark-labs.png)
